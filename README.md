@@ -1,4 +1,7 @@
-## Hi there 👋
+## Salutations Ladies and gentlemen 🗿🤝🗿
+
+## About Me 🦦
+Hello everyone! you can call me Sidh 😊. I'm currently doing my Bachelor in Cybersecurity. i'm still on my journey of exploring and learning more about the world of Cybersecurity, and i also like to learn about new things.
 
 <!--
 **justcallmeSOVI/justcallmeSOVI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
